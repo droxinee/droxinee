@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @droxinee
+- 👀 I’m interested in programing 
+- 🌱 I’m currently learning bio-chemstry
+- 📫 How to reach me moisdeea1@gmail.com
